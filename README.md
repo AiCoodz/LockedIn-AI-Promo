@@ -3,9 +3,9 @@ Here’s your SEO-optimized, detailed article for **LockedIn AI Promo Codes - 80
 
 ---
 ---
-### [Use This Link To Get 55% OFF ](https://www.lockedinai.com/?via=muhammad).
+### [Use This Link To Get 90% OFF ](https://www.lockedinai.com/?via=muhammad).
 
-[![Discount button](https://github.com/user-attachments/assets/e5cb2122-5258-4331-bbff-048ba1ae5555)](https://www.lockedinai.com/?via=muhammad)
+[![Discount button](https://github.com/user-attachments/assets/d84d81bf-3162-482e-9e2e-e24303a0283e)](https://www.lockedinai.com/?via=muhammad)
 
 # LockedIn AI Promo Codes – 80% Off Discount Code 2025
 
